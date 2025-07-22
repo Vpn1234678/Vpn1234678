@@ -2,7 +2,7 @@
 - 👀 I'm a 'designer in 'civic' duty 'Urban/rural' design future
 - 🌱 I’m currently demonstrating 'compose-composite'
 - 💞️ I’m looking to collaborate on 'cononical-asynchronous', Augmented creation 'virtue', 'front and backend', "creation" 'Orthodox architecture restoration'.
-- 📫 How to reach me. Adventishorizon@icloud.com
+- 📫 How to reach me. rmikekim1@gmail.com
 
 <!---
 Vpn1234678/Vpn1234678 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
